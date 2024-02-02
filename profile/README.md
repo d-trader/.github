@@ -1,1 +1,1 @@
-# :hand: Hello! :hand:
+# :hand: d-trader.com :hand:
